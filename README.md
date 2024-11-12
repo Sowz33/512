@@ -1,1 +1,1 @@
-# When its ready :P
+# A game will come soon on here.
